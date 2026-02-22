@@ -1,6 +1,6 @@
   <p align="center"> <img width="2048" height="345" alt="image" src="https://github.com/user-attachments/assets/a0e7b33d-9302-4534-a499-c6590945d9da" />
 
-   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=p0kerchips&label=indivuals+in+debt)
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=p0kerchips&label=indivuals+in+debt)
 
 
 
