@@ -1,12 +1,15 @@
-  <p align="center"> <img width="2048" height="345" alt="image" src="https://github.com/user-attachments/assets/52434e56-8de4-4d64-b792-39c58232eff1" />
-
-<p align="center"><img width="666" height="375" alt="image" src="https://github.com/user-attachments/assets/fb49cd53-b3f4-462c-bade-40fd3262cb07" />
+  <p align="center"> <img width="2048" height="345" alt="image" src="https://github.com/user-attachments/assets/a0e7b33d-9302-4534-a499-c6590945d9da" />
 
 
+<p align="center"><img width="666" height="375" alt="image" src="https://github.com/user-attachments/assets/c2e197d7-70a8-4c03-bd4f-66b0211b2b41" />
 
-<p align="center"><img 
+
+
+
+<p align="center"><img <img width="640" height="70" alt="image" src="https://github.com/user-attachments/assets/650cb9ec-3460-4b08-b456-8824a655c6f5" />
+
   
-  <img width="1140" height="110" alt="image" src="https://github.com/user-attachments/assets/1a6a0096-73c7-4a26-97d5-492829b82f87" />
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://casin0games.straw.page) ㅤㅤ[ata](https://casinogames.atabook.org/) ㅤㅤ[pintrest](https://pin.it/5h2dAy452)
