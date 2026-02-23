@@ -20,4 +20,13 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://casin0games.straw.page) ㅤㅤ[ata](https://casinogames.atabook.org/) ㅤㅤ[pintrest](https://pin.it/5h2dAy452)
 
 
+  
+<p align="center"><img width="391" height="338" alt="image" src="https://github.com/user-attachments/assets/bbc48223-c5e8-4d55-9b50-c5d726157032" />
+
+<p align="center"<>I've always been a ladies man and I don't have to bragㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+But I've become a mama's boy for Andrew in dragㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+I'd sign away my trust fund, I would even sell the Jagㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+If I could spend my misspent youth with Andrew in dragㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+
+
 
