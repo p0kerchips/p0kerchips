@@ -23,10 +23,7 @@
   
 <p align="center"><img width="391" height="338" alt="image" src="https://github.com/user-attachments/assets/bbc48223-c5e8-4d55-9b50-c5d726157032" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi've always been a ladies man and I don't have to bragㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤBut I've become a mama's boy for Andrew in dragㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤi'd sign away my trust fund, I would even sell the Jagㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIf I could spend my misspent youth with Andrew in dragㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-
-
+<p align="center">i've always been a ladies man and I don't have to brag
+<p align="center">But I've become a mama's boy for Andrew in drag
+<p align="center">i'd sign away my trust fund, I would even sell the Jag
+<p align="center">If I could spend my misspent youth with Andrew in drag
