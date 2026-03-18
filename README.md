@@ -1,7 +1,7 @@
   <p align="center"> <img width="2048" height="345" alt="image" src="https://github.com/user-attachments/assets/a0e7b33d-9302-4534-a499-c6590945d9da" />
 
   
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=p0kerchips&label=indivuals+in+debt)   ㅤㅤ   ㅤㅤ   ㅤㅤㅤㅤ  ㅤㅤ   ㅤㅤ   ㅤㅤ
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=p0kerchips&label=indivuals+in+debt)   ㅤㅤ   ㅤㅤ   ㅤㅤㅤㅤ  ㅤㅤ   ㅤㅤ   ㅤㅤ
 <p align="center"><img width="407" height="50" alt="image" src="https://github.com/user-attachments/assets/5c348a6c-129e-4b41-82d5-1e2b79781597" />
 
 
