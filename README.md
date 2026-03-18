@@ -2,10 +2,10 @@
 
   
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-   ㅤㅤ![](https://komarev.com/ghpvc/?username=p0kerchips&label=indivuals+in+debt)
+ㅤㅤ![](https://komarev.com/ghpvc/?username=p0kerchips&label=indivuals+in+debt)
 
 
-   ㅤㅤ   ㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤㅤ  ㅤ  ㅤㅤ  ㅤㅤ   ㅤㅤ<img width="407" height="50" alt="image" src="https://github.com/user-attachments/assets/d0bc46a8-3800-4462-8800-069586562677" />
+   ㅤㅤ   ㅤ   ㅤㅤ   ㅤㅤ   ㅤㅤㅤㅤ  ㅤㅤ   ㅤㅤ<img width="407" height="50" alt="image" src="https://github.com/user-attachments/assets/d0bc46a8-3800-4462-8800-069586562677" />
 
 
 
