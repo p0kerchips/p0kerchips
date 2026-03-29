@@ -14,7 +14,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://casin0games.straw.page) ㅤㅤ[ata](https://casinogames.atabook.org/) ㅤㅤ[pintrest](https://pin.it/5h2dAy452) ㅤㅤ[pronounspage](https://en.pronouns.page/@pokerchips)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://casin0games.straw.page) ㅤㅤ[ata](https://casinogames.atabook.org/) ㅤㅤ[pintrest](https://pin.it/5h2dAy452) ㅤㅤ[pronounspage](https://en.pronouns.page/@pokerchips)
 
 
   
