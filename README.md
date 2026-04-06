@@ -2,8 +2,11 @@
 
   
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=p0kerchips&label=indivuals+in+debt)   ㅤㅤ   ㅤㅤ   ㅤㅤㅤㅤ  ㅤㅤ   ㅤㅤ   ㅤㅤ
-<p align="center"><img width="407" height="50" alt="image" src="https://github.com/user-attachments/assets/5c348a6c-129e-4b41-82d5-1e2b79781597" />
-
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31z6bcichcnwldmfkkgwvwvgkifa&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false">
+  </a>
+</p>
 
 
 <p align="center"><img width="666" height="375" alt="image" src="https://github.com/user-attachments/assets/c2e197d7-70a8-4c03-bd4f-66b0211b2b41" />
