@@ -5,5 +5,4 @@
 </p>
 
 
-<p align="center"><img width="450" height="500" alt="output-onlinepngtools (2)" src="https://github.com/user-attachments/assets/33ad6baf-52a3-430a-809d-b1e2f7d7f474" />
-<p align="center">placeholder
+<p align="center"><img width="669" height="420" alt="my-image" src="https://github.com/user-attachments/assets/e0f9affb-0954-49ec-8863-b5bab8c71cd5" />
