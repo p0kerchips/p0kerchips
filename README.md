@@ -4,15 +4,15 @@
   </a>
 </p>
 
-<p align="center"><img width="666" height="641" alt="image" src="https://github.com/user-attachments/assets/799e7986-52cc-4a16-81c4-f0f9bfac5049" />
+<p align="center"><img width="566" height="541" alt="image" src="https://github.com/user-attachments/assets/799e7986-52cc-4a16-81c4-f0f9bfac5049" />
 
 <p align="center"><img width="362" height="164" alt="image" src="https://github.com/user-attachments/assets/adc3bf02-064c-44c2-a9d6-3869b899a3e1" />
 
 
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍󠀠󠀠󠀠󠀠󠀠󠀠󠀠󠀠󠀠󠀠⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ [ata](casinogames.atabook.org)⠀ ⠀  [straw](https://casin0games.straw.page)⠀ ⠀  [prns](https://en.pronouns.page/@pokerchips)
-<p align="center"><img width="499" height="440" alt="image" src="https://github.com/user-attachments/assets/e086a615-becd-478b-8cdd-f340b6b15209" />
 
+
+⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀[ata](casinogames.atabook.org)⠀ ⠀  [straw](https://casin0games.straw.page)⠀ ⠀  [prns](https://en.pronouns.page/@pokerchips)
 
    
    
