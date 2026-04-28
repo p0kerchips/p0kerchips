@@ -13,8 +13,6 @@
 
 
 ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀           ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  ⠀⠀ ⠀ ⠀⠀[ata](casinogames.atabook.org)⠀ ⠀  [straw](https://casin0games.straw.page)⠀ ⠀  [prns](https://en.pronouns.page/@pokerchips)
-<p align="center"><img width="484" height="414" alt="image" src="https://github.com/user-attachments/assets/acc3943d-65d1-4fd4-b94a-f75405e96dba" />
-
 
    
    
