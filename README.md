@@ -12,7 +12,7 @@
 
 
 
-⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀           ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀[ata](https://pokerchips.atabook.org)⠀ ⠀  [straw](https://casin0games.straw.page)⠀ ⠀  [prns](https://en.pronouns.page/@pokerchips)
+⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀           ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  ⠀⠀⠀⠀ ⠀ ⠀[ata](https://pokerchips.atabook.org)⠀ ⠀  [straw](https://casin0games.straw.page)⠀ ⠀  [prns](https://en.pronouns.page/@pokerchips)
 
    
    
