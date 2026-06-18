@@ -6,7 +6,7 @@
 
 <p align="center"><img width="298" height="180" alt="c" src="https://github.com/user-attachments/assets/06392513-ca17-4629-8d09-9e132b37ccb9" />
 <p align="center">
-  redoing soon
+  redoing soon (never)
 
 
 
