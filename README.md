@@ -4,6 +4,9 @@
   </a>
 </p>
 
+⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀           ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  ⠀⠀⠀⠀ ⠀ ⠀⠀[ata](https://pokerchips.atabook.org)⠀ ⠀  [straw](https://casin0games.straw.page)⠀ ⠀  [prns](https://en.pronouns.page/@pokerchips)
+
+
 <p align="center"><img width="540" height="257" alt="67dgnu (1)" src="https://github.com/user-attachments/assets/4eea363e-c99d-4d72-b547-9b3f98cb808d" />
 
 <img width="417" height="598" alt="image" src="https://github.com/user-attachments/assets/8fb8fd65-ce88-4e96-abb7-0e4786bf99f9" />
@@ -32,7 +35,7 @@
 
 
 
-⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀           ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  ⠀⠀⠀⠀ ⠀ ⠀⠀[ata](https://pokerchips.atabook.org)⠀ ⠀  [straw](https://casin0games.straw.page)⠀ ⠀  [prns](https://en.pronouns.page/@pokerchips)
+
 
    
    
