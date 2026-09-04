@@ -2,7 +2,7 @@ yall hoes wanna be me so bad OMFG STOP COPYING MY SKINS NO INSPO EITHER GO AWAY
 <img width="2048" height="1675" alt="image" src="https://github.com/user-attachments/assets/6e855204-145c-409c-b5da-cb5c42b4dcc4" />
 
 [<img width="190" height="88" alt="image" src="https://github.com/user-attachments/assets/e969d2ad-59bd-4831-8dd4-070c0cec8c5e" />
-](pokerchips.atabook.org)
+](https://pokerchips.atabook.org/)
 
 [<img width="247" height="88" alt="image" src="https://github.com/user-attachments/assets/aef00179-1522-483f-9e39-d44e919a92fc" />](https://casin0games.straw.page)
 
