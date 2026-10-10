@@ -1,4 +1,2 @@
-redoing this I KNOW I KEEP REDOING EVERYTHING IM SORRY EVERYTHING LOOKS SO FUCKUING UGLY
-
-<img width="736" height="466" alt="image" src="https://github.com/user-attachments/assets/d6086cf2-c9b6-47d4-aced-12813b96f57e" />
+<img width="1920" height="1080" alt="the beauty of ‘er face was beyond my wildest dreams like the cherry blossoms bloomin’ in the mountain in theearly spring as we walk by the river and she softly took hold of my hand, thats when i f (2)" src="https://github.com/user-attachments/assets/526f4c69-b92b-44fb-a147-88b67a1ce342" />
 
